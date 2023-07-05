@@ -1,1 +1,1 @@
-jesus is lord
+gigi
